@@ -36,13 +36,13 @@
 > >
 > > | Tool | Description | Free Tier |
 > > |------|-------------|-----------|
-> > | [Candy AI](https://candy.ai/) | Realistic AI girlfriend/boyfriend creator with image generation | ✅ |
-> > | [Crushon AI](https://crushon.ai/) | Uncensored character roleplay with extensive character library | ✅ |
+> > | [Candy AI](https://t.vlmai-3.com/406118/10022/37987?aff_sub5=SF_006OG000004lmDN) | Realistic AI girlfriend/boyfriend creator with image generation | ✅ |
+> > | [Crushon AI](https://crushon.ai/?ref=ogu1ytm&mist=1) | Uncensored character roleplay with extensive character library | ✅ |
 > > | [Replika](https://replika.com/) | AI companion focused on emotional connection and mental wellness | ✅ |
 > > | [Character AI](https://character.ai/) | Massive character library, mostly SFW with user-created bots | ✅ |
 > > | [Janitor AI](https://janitorai.com/) | Uncensored roleplay platform using custom API keys | ✅ |
-> > | [Spicy AI](https://spicychat.ai/) | NSFW-focused chat platform with anime and realistic styles | ✅ |
-> > | [DreamGF](https://dreamgf.ai/) | Virtual girlfriend AI with image generation and voice | ✅ |
+> > | [Spicy AI](https://spicychat.ai?ref=odhkmgf) | NSFW-focused chat platform with anime and realistic styles | ✅ |
+> > | [DreamGF](https://t.vlmai-3.com/406118/6559?aff_sub5=SF_006OG000004lmDN) | Virtual girlfriend AI with image generation and voice | ✅ |
 > >
 > > ---
 > >
