@@ -43,6 +43,7 @@
 > > | [Janitor AI](https://janitorai.com/) | Uncensored roleplay platform using custom API keys | ✅ |
 > > | [Spicy AI](https://spicychat.ai?ref=odhkmgf) | NSFW-focused chat platform with anime and realistic styles | ✅ |
 > > | [DreamGF](https://t.vlmai-3.com/406118/6559?aff_sub5=SF_006OG000004lmDN) | Virtual girlfriend AI with image generation and voice | ✅ |
+> > | [Kissable](https://kissable.app) | AI companion with persistent memory, together photos, video, voice, community scenarios, unlimited messages | ✅ |
 > >
 > > ---
 > >
