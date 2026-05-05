@@ -40,6 +40,7 @@
 > > | [Crushon AI](https://crushon.ai/?ref=ogu1ytm&mist=1) | Uncensored character roleplay with extensive character library | ✅ |
 > > | [Replika](https://replika.com/) | AI companion focused on emotional connection and mental wellness | ✅ |
 > > | [Character AI](https://character.ai/) | Massive character library, mostly SFW with user-created bots | ✅ |
+> > | [Kissable](https://kissable.app) | AI companion with persistent memory, together photos, video, voice, community scenarios, unlimited messages | ✅ |
 > > | [Janitor AI](https://janitorai.com/) | Uncensored roleplay platform using custom API keys | ✅ |
 > > | [Spicy AI](https://spicychat.ai?ref=odhkmgf) | NSFW-focused chat platform with anime and realistic styles | ✅ |
 > > | [DreamGF](https://t.vlmai-3.com/406118/6559?aff_sub5=SF_006OG000004lmDN) | Virtual girlfriend AI with image generation and voice | ✅ |
